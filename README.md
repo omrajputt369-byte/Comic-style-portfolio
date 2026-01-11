@@ -68,6 +68,6 @@ Portfolio Design/
 *   **LinkedIn**: [OM](https://www.linkedin.com/in/om-rajput369)
 
 ---
-© 2025 OM CODES. All Rights Reserved &
+© 2026 OM CODES. All Rights Reserved &
 Developed by **OM**
 
